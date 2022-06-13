@@ -1,4 +1,4 @@
-![MasterHead](https://i0.wp.com/www.printmag.com/wp-content/uploads/2021/02/4cbe8d_f1ed2800a49649848102c68fc5a66e53mv2.gif?fit=476%2C280&ssl=1)
+![MasterHead](https://im5.ezgif.com/tmp/ezgif-5-442437b9ae.webp)
 
 
 <h1 align="center">Hi , I'm KrarK <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
