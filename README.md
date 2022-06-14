@@ -1,4 +1,4 @@
-![MasterHead](https://im5.ezgif.com/tmp/ezgif-5-442437b9ae.webp)
+![MasterHead](https://i.postimg.cc/ZYjbdfD1/68747470733a2f2f696d352e657a6769662e636f6d2f746d702f657a6769662d352d343432343337623961652e77656270.webp)
 
 
 <h1 align="center">Hi , I'm KrarK <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
