@@ -12,10 +12,10 @@
 - 🔭 I’m currently working on **My Skills**
 
 - 👯 I’m looking to collaborate on **IT Projects**
-
+- 🧳 What's my Current Job/Profession: **Student**🎓
 - 🤝 I’m looking for help with **No one**
-
-- 💬 Ask me about **Cybersec,Os, Penetration testing**
+- 🎀 My Current Age: **18**
+- 💬 Ask me about **Cybersec,Os, Android, Windows, Penetration testing**
 
 - 📫 How to reach me **T.G : @thekrark**
 
