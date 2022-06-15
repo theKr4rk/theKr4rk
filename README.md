@@ -15,7 +15,7 @@
 - 🧳 What's my Current Job/Profession: **Student**🎓
 - 🤝 I’m looking for help with **No one**
 - 🎀 My Current Age: **18**
-- 💬 Ask me about **Cybersec,Os, Android, Windows, Penetration testing**
+- 💬 Ask me about **Cybersec,Os, Android, Windows, Penetration testing etc.**
 
 - 📫 How to reach me **T.G : @thekrark**
 
