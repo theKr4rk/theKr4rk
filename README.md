@@ -17,7 +17,9 @@
 - 🎀 My Current Age: **19**
 - 💬 Ask me about **Cybersec,Os, Android, Windows, Penetration testing etc.**
 
-- 📫 How to reach me **T.G : @thekrark**
+- 📫 How to reach me 
+**T.G : @thekrark**
+**Insta: @anubav_arora8080
 
 - ⚡ Fun fact: **I am Introvert :D**
 
