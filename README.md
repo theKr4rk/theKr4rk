@@ -20,7 +20,7 @@
 - 📫 How to reach me 
 
 - **T.G : @thekrark**
-- **Insta: @anubav_arora880**
+
 
 - ⚡ Fun fact: **I am Introvert :D**
 
