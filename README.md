@@ -19,7 +19,7 @@
 
 - 📫 How to reach me 
 
-- **T.G : @thekrark**
+- **T.G : ****
 
 
 - ⚡ Fun fact: **I am Introvert :D**
